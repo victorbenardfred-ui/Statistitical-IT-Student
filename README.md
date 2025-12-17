@@ -1,1 +1,0 @@
-# Statistitical-IT-Student
